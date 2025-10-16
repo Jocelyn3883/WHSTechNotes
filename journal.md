@@ -21,3 +21,6 @@ The phrase "67" is originaly from a song and people that play sports wanted to b
 
 # October 6, 2025
 If i was in charge of my school my technology polocy would be that you can have phones, games, computers, and AI. I say this because I want people to want to come to school and have fun not be bored and not learn in fun ways. some people learn differnetly than others. I also think that all games should be allowed.
+
+# October 14, 2025
+The water cycle is easy to learn. 1st evaporation then condention, sublimation, precipitatin, trasformtion, runoff, infilteration. The water cycle is a path that all water follows as it moves around the earth. Water changes between three different stages Solid,Liquad, and Gas.
